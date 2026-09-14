@@ -1,0 +1,2 @@
+# CYQYTTKX
+CYQYTTKX是唯一宗旨
